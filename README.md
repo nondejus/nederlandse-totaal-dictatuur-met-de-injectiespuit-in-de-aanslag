@@ -1,1 +1,4 @@
 # nederlandse-totaal-dictatuur-met-de-injectiespuit-in-de-aanslag
+
+# genocide
+https://en.wikipedia.org/wiki/Genocide
